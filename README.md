@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @obravot
-- 👀 I’m interested in ... cyborg art, videoart, art instalation, queer, electronic music, noise, 
+- 👀 I’m interested in ... cyborg art, videoart, art instalation, electronic music, noise, 
 - 🌱 I’m currently learning ... 
 - 💞️ I’m looking to collaborate on ... video art instalations,
 - 📫 How to reach me ... IG OBRAVOT EMAIL: OSCARJ998@GMAIL.COM
